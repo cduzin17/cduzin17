@@ -1,7 +1,5 @@
 ## BEM VINDO 🖤🤍
 
-S C C P 🖤🤍
-
 777 
 
 SIUUUU 🐐
@@ -24,3 +22,7 @@ https://editor.p5js.org/CarlosEduardo123/full/cvmHo-Jnh
 TRABALHOS NO SCRATH:
 
 https://scratch.mit.edu/projects/1032064972
+
+https://scratch.mit.edu/projects/1002998789
+
+
